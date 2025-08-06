@@ -1,3 +1,2 @@
-[ALL] Rotti‎: cheaters gonna cheat
-
+[ALL] Rotti‎: cheaters gonna cheat  
 [ALL] Rotti‎: easy reports
